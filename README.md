@@ -9,7 +9,7 @@ projected increases in lifetime earnings, using academic research on
 returns to education in Sub-Saharan Africa.
 
 The project was developed to connect my background in girls' education 
-advocacy through the Msichana Bora Initiative in Kitui County, Kenya, 
+advocacy through the Mwanga Initiative in Kitui County, Kenya, 
 with financial analysis methods used in development finance and impact 
 investing.
 
